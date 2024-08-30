@@ -1,4 +1,4 @@
- Banner (1)](https://github.com/user-attachments/assets/3f04e158-fceb-442a-a04e-56b88a0599e1)
+![Black Gradient Minimalist Corporate Business Personal Profile New LinkedIn Banner (1)](https://github.com/user-attachments/assets/f603ec45-5263-418c-b0b6-e3bccbfc397d)
 
 
 
